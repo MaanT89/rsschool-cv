@@ -1,1 +1,1 @@
-https://MaanT89.github.io/rsschool-cv/cv
+https://MaanT89.github.io/rsschool-cv/
